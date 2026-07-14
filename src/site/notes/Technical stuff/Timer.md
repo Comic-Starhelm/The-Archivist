@@ -9,4 +9,4 @@
 Uh oh, someone was NOSEY
 #000000
 ```
-.
+Just so you guys know, it’s a countdown timer until 2:00pm cst
