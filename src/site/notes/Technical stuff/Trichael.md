@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/technical-stuff/trichael/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/technical-stuff/trichael/","tags":["gardenEntry"],"dg-note-properties":{}}
 ---
 
 **LETS DO THIS!**

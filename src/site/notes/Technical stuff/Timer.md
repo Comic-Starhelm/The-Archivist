@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/technical-stuff/timer/","tags":["gardenEntry"],"dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/technical-stuff/timer/","dg-note-properties":{}}
 ---
 
 
