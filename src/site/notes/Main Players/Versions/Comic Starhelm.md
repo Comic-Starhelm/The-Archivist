@@ -3,4 +3,9 @@
 ---
 
 The past version of Tħę Arcħïvïst and priorly whimsy. Not much is known on his past other than he was an investigator of supernatural causes.
-[[Main Players/Father Anomaly 2179; Gabriel\|Father Anomaly 2179; Gabriel]][[Technical stuff/Țħę Arçħïțęçț-\|Țħę Arçħïțęçț-]]
+[[Main Players/Father Anomaly 2179; Gabriel\|Father Anomaly 2179; Gabriel]]
+[[Main Players/Versions/Țħę Arçħïțęçț\|Țħę Arçħïțęçț]]
+[[Main Players/Victoria\|Victoria]]
+[[Main Players/Damien\|Damien]]
+[[Main Players/Hub\|Hub]]
+
