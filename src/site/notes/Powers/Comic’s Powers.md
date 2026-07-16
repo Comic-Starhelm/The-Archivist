@@ -30,7 +30,7 @@ Strangely, regardless of what he is wielding, he always makes mention of how lig
 --——————————————————————-
 **Undocumented power**
 Cost:[Err: Unknown]
-Description: We are unsure of the capabilities of this power, just that if he goers in, most likely it’s a killing field.
+Description: We are unsure of the capabilities of this power, just that if he goes in, most likely it’s a killing field.
 --———————————————————————-
 **Future sight**
 Cost [Err: Unknown]
