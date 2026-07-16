@@ -25,7 +25,8 @@ Can summon any weapon at will, he refers to these weapons as “Soul Shields” 
 A MASSIVE rusted great sword with a razor sharp edge and the enchantment to make sure it can cut ANYTHING and it won’t heal, at least, not quickly. Supposedly there are 3 forms to this
 “**Sasha**”
 Supposedly named after his missing girlfriend, this elegant horse cutter katana can counter just about anything to anyone who isn’t expecting it, and one slice could very well be fatal, as it doesn’t just cut the body, it cuts your matter in all states, including your soul. the only three people who have the capacity to counter it is Star, his pupil whom he sees like a daughter, the Director, Damien, And Gabriel.
-We are unsure where he gets these weapons, and unsure if he has more, but the raw power is terrifying.
+
+Strangely, regardless of what he is wielding, he always makes mention of how lightweight it is, despite “Plastered” being most likely hundreds of pounds of steel. We are unsure where he gets these weapons, and unsure if he has more, but the raw power is terrifying.
 --——————————————————————-
 **Undocumented power**
 We are unsure of the capabilities of this power, just that if he goers in, most likely it’s a killing field.
