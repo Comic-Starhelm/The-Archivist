@@ -16,6 +16,6 @@ So you can look back:
 [[Technical stuff/Țħę Arçħïțęçț-\|Țħę Arçħïțęçț-]]
 [[Technical stuff/Oof\|Oof]]
 [[Websites?/Websites.\|Websites.]]
-[[Rest\|Rest]]
+[[Technical stuff/Reality\|Reality]]
 
 
