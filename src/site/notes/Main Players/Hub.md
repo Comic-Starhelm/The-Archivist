@@ -4,18 +4,12 @@
 
 NO ARG TODAY. . . RECORDING AND WRITING
 
-Usual descriptions (will be condensed on a later date):
-[[Main Players/Damien\|Damien]]
-[[Main Players/Versions/Comic Starhelm\|Comic Starhelm]]
-[[Main Players/Versions/Tħę Arcħïvïst\|Tħę Arcħïvïst]]
-[[Main Players/Versions/Țħę Arçħïțęçț\|Țħę Arçħïțęçț]]
-[[Main Players/Father Anomaly 2179; Gabriel\|Father Anomaly 2179; Gabriel]]
-[[Main Players/Victoria\|Victoria]]
-[[Powers/Powers?\|Powers?]]
+Usual descriptions (will be condensed on a later date)
+[[Main Players/Versions/Versions hub\|Versions hub]]
+[[Main Players/Main player hub\|Main player hub]]
+[[Powers/Abilities hub\|Abilities hub]]
 So you can look back:
-[[Technical stuff/Țħę Arçħïțęçț-\|Țħę Arçħïțęçț-]]
-[[Technical stuff/Oof\|Oof]]
-[[Websites?/Websites.\|Websites.]]
-[[Technical stuff/Reality\|Reality]]
+[[Technical stuff/Look back hub\|Look back hub]]
+
 
 
