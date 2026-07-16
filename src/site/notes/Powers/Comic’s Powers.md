@@ -29,4 +29,4 @@ We are unsure where he gets these weapons, and unsure if he has more, but the ra
 --——————————————————————-
 **Undocumented power**
 We are unsure of the capabilities of this power, just that if he goers in, most likely it’s a killing field.
-[[Main Players/Hub\|Hub]]
+[[Powers/Abilities hub\|Abilities hub]]
