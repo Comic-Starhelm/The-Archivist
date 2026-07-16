@@ -29,5 +29,11 @@ Supposedly named after his missing girlfriend, this elegant horse cutter katana 
 Strangely, regardless of what he is wielding, he always makes mention of how lightweight it is, despite “Plastered” being most likely hundreds of pounds of steel. We are unsure where he gets these weapons, and unsure if he has more, but the raw power is terrifying.
 --——————————————————————-
 **Undocumented power**
-We are unsure of the capabilities of this power, just that if he goers in, most likely it’s a killing field.
+Cost:[Err: Unknown]
+Description: We are unsure of the capabilities of this power, just that if he goers in, most likely it’s a killing field.
+--———————————————————————-
+**Future sight**
+Cost [Err: Unknown]
+Description: We don’t know how far, but he can definitely predict the movements of his opponents before they make them, that has been confirmed
+————————————————————————-
 [[Powers/Abilities hub\|Abilities hub]]
