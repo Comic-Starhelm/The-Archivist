@@ -61,4 +61,64 @@ Eyes: ~~ṗ̸͓͇̓u̵̎̒͌͘r̴̓͐́͘p̵̛͂͂̚l̶̃̀̎̕ȅ̷͈̫̺~~, the
 [Anomaly D10] has only been in this reality for 9 days, and [Anomaly D10] memory only goes that far back, something took the rest. Evidence suggests this isn’t the first time [Anomaly D10] is taken to a different reality and stripped of [Anomaly D10] memories.
 However, [Anomaly D10] has an instinct that pushes [Anomaly D10], it associates things from [Anomaly D10] forgotten past with select experiences. This may allow for partial memory recovery.
 [Partal memory recovery success]
+Case_02
+Diola was made a member of H.E.L.P. by The Archivist
+¿Star? Was there to witness it
+[the look in their eyes remind me of Star. . This will be fun]
+Case_03
+
+A very scientific experiment was carried out outside The Archivist’s office.
+
+Upon request, [Entity D10] was shot in the head by ¿Star? in order to further test the regeneration and inmortality. 
+The bullet of a caliber ||[idk]|| gun only managed to penetrate one of the layers of cranium, suggesting the high content of calcium in [Entity D10] blood causes a higher bone density.
+Within less than five minutes, [Entity D10] died and got better.
+
+Will continue to test.
+Case_04
+
+[Entity D10] is now in possession of a rapier, no one claims to have given it to [Entity D10] and [Entity D10] will not disclose where it came from. Whether it is because [Entity D10] doesn’t know or doesn’t want to tell us is unknown.
+So far, [Entity D10] has been seen wielding it with considerable confidence, hasn’t used it against anything yet though.
+
+It is unknown if the weapon possesses any sort of magic or singularities.
+
+Will continue to monitor
+Case_05
+
+[Entity D10]’s physical abilities have been tested further; attached are [video file_1] of [Entity D10] against Star on a foot race and sword combat, rapier against longsword, [video file_2] of [Entity D10] against The Archivist, rapier against ___; [text file_1] medical report; and [text file_2] test observations and conclusions.
+
+##**[video file_1]**##
+*   Shows Star running slightly ahead of [Entity D10] through the track, reaching the end moments before she followed.
+   It then cuts to [Entity D10] sparing against Star, [Entity D10] has a clear upper hand despite still getting hit a couple times. [Entity D10] ultimately wins.*
+   [That didn’t make me very happy, to say the least.]
+
+##**[video file_2]**##
+*   Shows [Entity D10] getting beat up by the Archivist. His first hit lands, catching her off guard, after she begins to defend herself properly against the repeated blows, only receiving one more sword wound. The fight ends with the Archivist physically opening [Entity D10]’s leg, rendering [Entity D10] unable to fight.*
+[I gained a sense of joy from this, both the injuries and the data. . . I think the joy of pain is my alternate speaking though]
+
+##**[text file_1]**##
+Came into medical with three flesh wounds, the worst one, situated on [Entity D10] leg was bandaged before inquiring about [Entity D10] regeneration. After discovering that death accelerates [Entity D10] recovery, [Entity D10] was shot in the head.
+
+[Entity D10] walked out of medical fully recovered within 10 minutes.
+
+Please keep [Entity D10] away.
+
+##**[text file_2]**##
+
+My power is still weak.
+Basics in swordsmanship seem to be stored within my muscles rather than my mind, I beat Star and held up against the Archivist fairly well until they used magic. 
+  Will continue to train until I can beat the Archivist.
+
+The sword I wield isn’t my own, despite having no recollection of how I adquiered it, it doesn’t belong with me.
+  Find your own.
+
+Despite having retrieved a great part of my past stamina, my strength is still in need of training.
+  Will continue to train until I can beat Star on a foot race with little struggle
+
+Will continue to test
+Case_06
+
+Attempts at classifying [Entity D10]’s eyes as ~~ṗ̸͓͇̓u̵̎̒͌͘r̴̓͐́͘p̵̛͂͂̚l̶̃̀̎̕ȅ̷͈̫̺~~ become corrupted
+Case_07
+
+*I can’t*, 1 can’t, I Xan’t, I cag’t, I van’t, p can’t, I c3n’t, p can’t, I Xan’t, I caN’t, I cQn’t, 0 can’t, I cWn’t, U can’t, I cah’t, I Dan’t, I dan’t, I can’Y, I can’f, I cQn’t, 9 can’t, I van’t, u can’t, I can’U, I Dan’t, I can’6, I xan’t, I czn’t, 0 can’t, I can’3, I cen’t, I cwn’t, I cam’t, I caan’t?
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
