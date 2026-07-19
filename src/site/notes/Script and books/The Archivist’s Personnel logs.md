@@ -10,5 +10,6 @@
 [[Script and books/Verdant\|Verdant]]
 [[Script and books/Star\|Star]]
 [[Script and books/Mango\|Mango]]
+[[Script and books/Stela\|Stela]]
 [[Script and books/The soul owning contract\|The soul owning contract]]
 [[Script and books/Soulbound Contract\|Soulbound Contract]]
