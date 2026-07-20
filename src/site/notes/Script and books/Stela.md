@@ -53,4 +53,14 @@ Case_09
 3rd. AESATAM.
 *Stela sighed, very bored because she had nothing to do. She then picked up a book and started reading. As the time went by, she was starting to feel sleepy, so, she out the book down and started to doze off. Her dream was... normal, for once. She wasn't disturbed by E!Stela and everything was fine. When she woke up, she wasn't on the ground. She was surprised.*
 [threat neutralized]
+Case_10
+1st. R. 
+*Stela leaned on the soft pillows of her bed, looking at the ceiling, lost in thought.*
+Stela: "You know..."
+E!Stela: "Hm?"
+Stela: "The Archivist is kind of... well, not bad, of course, but... he's pretty intimidating, if you ask me."
+*E!Stela starts laughing, clutching her stomach. It seemed forced, though.*
+E!Stela: "He's not *that* intimidating, c'mon." *She said with a smirk of her face, but it seemed to falter a little bit. She seemed scared of him.*
+Stela: "If you say so..." *She said, knowing that E!Stela was lying.*
+
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
