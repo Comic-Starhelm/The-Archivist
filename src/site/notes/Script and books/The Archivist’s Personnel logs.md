@@ -14,3 +14,5 @@
 [[Script and books/Kado\|Kado]]
 [[Script and books/The soul owning contract\|The soul owning contract]]
 [[Script and books/Soulbound Contract\|Soulbound Contract]]
+[[Main Players/Hub\|Hub]]
+
