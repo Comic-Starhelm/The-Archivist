@@ -34,4 +34,8 @@ Case_07
 2nd. N.
 *That offer was tempting. For a normal human being, of course. But... she's not entirely human. She's a divine human. But, that doesn't change any of her mindset. Anyway, Stela stopped thinking about the offer and took her notebook, going outside to breathe some fresh air into her lungs. She started writing as she sat on a bench, writing a new poem calmly.*
 [A wise decision. I would advise you don’t let them take over.]
+Case_08
+3rd. AESATAM.
+*Stela sighed, very bored because she had nothing to do. She then picked up a book and started reading. As the time went by, she was starting to feel sleepy, so, she out the book down and started to doze off. Her dream was... normal, for once. She wasn't disturbed by E!Stela and everything was fine. When she woke up, she wasn't on the ground. She was surprised.*
+[threat neutralized]
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
