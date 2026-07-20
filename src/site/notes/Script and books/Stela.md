@@ -35,6 +35,21 @@ Case_07
 *That offer was tempting. For a normal human being, of course. But... she's not entirely human. She's a divine human. But, that doesn't change any of her mindset. Anyway, Stela stopped thinking about the offer and took her notebook, going outside to breathe some fresh air into her lungs. She started writing as she sat on a bench, writing a new poem calmly.*
 [A wise decision. I would advise you don’t let them take over.]
 Case_08
+1st. AESATAM.
+*Stela was lying in bed, thinking about how E!Stela hasn't teased her at all. She then asked her the question she has been meaning to ask her for a very long time.*
+Stela: "Sp3ct3r, why haven't you bothered me at all?" *Is what she asked.*
+*E!Stela stayed quiet for a second or two, then replied:*
+E!Stela: "I just don't feel like it anymore." *Is what she said in a teasing tone, but the underlying tone was that of an annoyed one.*
+Stela: "Huh, okay..."
+2nd. AESATAM.
+Stela: "Are you sure it's that?" *She said, hearing the annoyance in the other one.*
+E!Stela: "Yes." *Is all she said, her tone flat.*
+Stela: "Sure..."
+*Stela then realized that E!Stela can walk again.*
+Stela: "Wait, he gave you the ability to move your legs back?"
+E!Stela: "He did. It was annoying when I couldn't move them."
+*Stela hums and just looks outside.*
+Case_09
 3rd. AESATAM.
 *Stela sighed, very bored because she had nothing to do. She then picked up a book and started reading. As the time went by, she was starting to feel sleepy, so, she out the book down and started to doze off. Her dream was... normal, for once. She wasn't disturbed by E!Stela and everything was fine. When she woke up, she wasn't on the ground. She was surprised.*
 [threat neutralized]
