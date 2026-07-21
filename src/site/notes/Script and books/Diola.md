@@ -121,4 +121,12 @@ Attempts at classifying [Entity D10]’s eyes as ~~ṗ̸͓͇̓u̵̎̒͌͘r̴̓͐
 Case_07
 
 *I can’t*, 1 can’t, I Xan’t, I cag’t, I van’t, p can’t, I c3n’t, p can’t, I Xan’t, I caN’t, I cQn’t, 0 can’t, I cWn’t, U can’t, I cah’t, I Dan’t, I dan’t, I can’Y, I can’f, I cQn’t, 9 can’t, I van’t, u can’t, I can’U, I Dan’t, I can’6, I xan’t, I czn’t, 0 can’t, I can’3, I cen’t, I cwn’t, I cam’t, I caan’t?
+Case_08
+**Log_11**
+
+After a member of the Infantry Division expressed their conCerns regarding [Entity D10] running tHrough the halls, beliEving it was an anomaly who had breached containment, the DoCumentation Division has decided to make a statement regarding her presence. Attached is [text file], said statement. ||K||
+
+[Entity D10] is not a threaT and free to roam the facilities. H.E.L.P. staff must treat tHEm as another colleague anD is to be referRed to as “Diola”, although wIthin the logs they will remain as [Entity D10] for archiVing purposEs.
+
+Regards, Documentation Division
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
