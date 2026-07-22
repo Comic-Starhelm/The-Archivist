@@ -46,4 +46,28 @@ why am i here
 
 ~~REMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBERREMEMBER~~
 [my poor pupil. . .]
+Case_04
+
+
+i dont know whats going on anymore? 
+
+I̴͆̾͂͗M̸͖͚̈̄S̵͈̜͒́T̸͒̍̒͘A̵̛̍̆͝R̷͂̑̅͊TIN̶̆̕͠͝G̶̐̍̿̓T̶͐̕͝͠Ȏ̵̏̈́̎Ṙ̶͑EME̶̅MB́ER̈́E̋VERY̵͝THIN̵͑͆͛̚Ǧ̵
+╎ᓵᔑリℸ ̣⍑inꖌᓭt∷ai⊣ht
+╎ᓵᔑリℸ ̣ᓭt𝙹!¡t⍑is
+
+
+`reload`
+
+It seems like the archivist is... actually i dont know I dont care anymore... no I do care just.
+I dont want anyone to know.
+Diola. god i dont know what to do..... I dont want to Hurt her. 
+I dont want to hurt anyone.
+no. I take that back. i do want to hurt those that desErve it... I want to protect those that I care for.. 
+I dont remember its name.
+**I want to kiLl it**
+whatever it is... I cant remember much but... Im starting to remember some... Its so fucking confusing...
+I dont think i can.. I dont know what it is...it Probably isnt anything I hope... no what am i saying. .
+
+-# seems star cant think anymore
+-# goodbye.
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
