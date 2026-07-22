@@ -129,4 +129,25 @@ After a member of the Infantry Division expressed their conCerns regarding [Enti
 [Entity D10] is not a threaT and free to roam the facilities. H.E.L.P. staff must treat tHEm as another colleague anD is to be referRed to as “Diola”, although wIthin the logs they will remain as [Entity D10] for archiVing purposEs.
 
 Regards, Documentation Division
+Case_13
+**Log_12**
+
+[Entity D10] was found unconscious in the halls by a patrolling Infantry Division member. Attached is a [text file] containing an email he sent to the Documentation Division.
+
+From: ||[redacted1]||@infantry.help.com
+To: ||[redacted2]||@documentation.help.com
+
+Hello ||[redacted2]||,
+
+I have seen the log telling us to not be concerned about this [Entity D10], but I just found [Entity D10] just laying on one of the halls, not even sitting against a wall, just face down. So, maybe it’s not something we should be concerned, but I am weirded out.
+
+Is [Entity D10] going to be staying here? Are the Science Div guys gonna contain her? 
+
+Look, the guys in the night shifts are genuinely scared of finding [Entity D10], [Entity D10] is always up to the most odd stuff, training at literal 3a.m. pulling off some movie stunts with a pipe [Entity D10] tore out of the wall with [Entity D10] BARE HANDS.
+
+At this point I’m just writing to you as a friend because I’m just straight up weirded out, who is and why is she here?
+
+Regards,
+
+||[redacted1]||
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
