@@ -10,3 +10,4 @@ Dislikes: Being called happyman or sadman, losing
 Abilities: can recolor himself, gets stronger when negative emotions are expressed, whenever they die they have a respawn timer of a week
 backstory: made with canva if you know what that is. dont know how he's real now
 fun facts: he is 2D
+[[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]

@@ -11,3 +11,4 @@ Name - Raire/Rite/Rai
 Pronouns - They/Them, as a kid in the ocean community all the ppl used dif pronouns that we would call Neopronouns (theydidn't clacify ppl by gender but by the animal they resemble; Rai was the crab) so like in flasbacks they use other ones
 Titles - The Vigilante/Neon Blade
 Species - Oceanides of the reef
+[[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]

@@ -67,7 +67,5 @@ I dont remember its name.
 **I want to kiLl it**
 whatever it is... I cant remember much but... Im starting to remember some... Its so fucking confusing...
 I dont think i can.. I dont know what it is...it Probably isnt anything I hope... no what am i saying. .
-
--# seems star cant think anymore
--# goodbye.
+[ŴĦŶ ÇǍŅ ĦÈÄŘ ÏȚ?]
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
