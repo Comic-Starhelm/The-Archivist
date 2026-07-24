@@ -16,6 +16,7 @@
 [[Script and books/Y ing\|Y ing]]
 [[Script and books/Io\|Io]]
 [[Script and books/Kado\|Kado]]
+[[Script and books/Normal\|Normal]]
 [[Script and books/The soul owning contract\|The soul owning contract]]
 [[Script and books/Soulbound Contract\|Soulbound Contract]]
 [[Main Players/Hub\|Hub]]
