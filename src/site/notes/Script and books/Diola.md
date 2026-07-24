@@ -130,7 +130,6 @@ After a member of the Infantry Division expressed their conCerns regarding [Enti
 
 Regards, Documentation Division
 Case_13
-**Log_12**
 
 [Entity D10] was found unconscious in the halls by a patrolling Infantry Division member. Attached is a [text file] containing an email he sent to the Documentation Division.
 
@@ -150,4 +149,19 @@ At this point I’m just writing to you as a friend because I’m just straight 
 Regards,
 
 ||[redacted1]||
+Case_13
+
+[Entity D10] saw a moose like anomaly within the forest. Attached is a [text file] summing up [Entity D10] experience.
+
+I ran into the woods following an inhuman scream, only to find a pile of human remains on the ground. Verdant and Stela were on a tree close by, probably trying to get away from the moose thing that game form the greenery with blood around it’s mouth. It just stood there and so I looked closer at the blood, noticing it belonged to someone who could heal since it was slowly regrouping.
+
+This was confirmed when Verdant said it was Star and went get aid in order to avoid interfering with the healing by transporting her. Once he was gone, the creature licked or spat, I don’t really know, and Star reformed but was possessed by the thing. 
+
+Since I have a hero complex, I asked Stela to run and stood up to the creature with a makeshift staff they was just a big stick. Luckily, I didn’t have to fight it and Stela came back, taken over by her other version I’ll refer to as [E2]. We were bantering and [E2] decided to give up control, leaving Stela with no strength left.
+
+The creature took this as its opportunity to try to talk to Stela, which I kept it from doing non violently. Then they proceeded to strike and miss a mace hit on me by little distance, getting the weapon stuck on the soft ground and giving me a chance to disarm and restrain them. Due to it still being belligerent even while pinned down, I started to strangle Star’s possessed body, which made the moose creature use one of its tentacles to pull me away from her, allowing for Star to go up to Stela again.
+
+In the end, the creature lost strength and dissipated, letting Star drop to the ground. Both Star and Stela were taken back to H.Q., medical and her dorm respectively, with Constellation (was it?) being left in the indoors training ground because medical staff refused to take it.
+
+Nothing else is new
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
