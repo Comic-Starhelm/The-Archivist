@@ -3,7 +3,7 @@
 ---
 
 Case_01
-Name: ##########?
+Name: Hazel
 Codename: Star
 Department: infantry 
 Division: Security 
@@ -68,5 +68,29 @@ I dont remember its name.
 whatever it is... I cant remember much but... Im starting to remember some... Its so fucking confusing...
 I dont think i can.. I dont know what it is...it Probably isnt anything I hope... no what am i saying. .
 [ŴĦŶ ÇǍŅ ĦÈÄŘ ÏȚ?]
+
+Case_04
+Star.
+the last time.
+the last time she saw Him...
+
+try and try and try and you get NOTHING.
+you work and try and mAke yourself who you say you are.
+it isnt working...
+*is it?*
+you are nothing.
+"please stop..."
+no no no you do NOT tell me to shut up #####
+"i didnt mean to."
+oh please.
+your so needy you acting like a child.
+"I AM A CHILD."
+FOR ONCE CAN YOU STOP MAKING EVERYTHING ABOUT YOU you are craZy you know that...
+*pausE*
+"im sorry...for Lashing out."
+you are not to leave the property again ##### understood?
+"..."
+am. I. clear.
+"yes... understood."
 
 [[Script and books/The Archivist’s Personnel logs\|The Archivist’s Personnel logs]]
