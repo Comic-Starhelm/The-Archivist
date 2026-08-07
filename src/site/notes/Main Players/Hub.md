@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/main-players/hub/","tags":["gardenEntry"],"dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/main-players/hub/","dg-note-properties":{}}
 ---
 
 NO ARG TODAY. . . RECORDING AND WRITING
