@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/glory/the-glory/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/glory/the-glory/","tags":["gardenEntry"],"dg-note-properties":{}}
 ---
 
 ***OF THE MOON***
